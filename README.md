@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @codhharris713
+- 👋 Hi, I’m Cody!
 - 👀 I’m interested in Software development, creating user friendly and eye catching websites, finding cool ways to make interesting projects.
 - 🌱 I’m currently learning anything and everything on making cool websites.
 - 💞️ I’m looking to collaborate on whatever you got I am down to try it out.
